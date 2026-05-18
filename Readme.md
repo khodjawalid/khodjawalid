@@ -59,7 +59,7 @@ Currently interested in:
 
 # Contact Me
 
-- LinkedIn: [Walid Abdelaziz Khodja](https://www.linkedin.com/in/walid-khodja)
+- LinkedIn: [Walid Khodja](https://www.linkedin.com/in/walid-khodja)
 - Email: [khodjawalid2014@gmail.com](mailto:khodjawalid2014@gmail.com)
 
 ---
